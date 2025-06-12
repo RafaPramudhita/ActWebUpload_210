@@ -1,1 +1,5 @@
-ini bukti web upload
+![Screenshot (162)](https://github.com/user-attachments/assets/dff337f0-9f06-423f-bd0f-922afa71f7ce)
+![Screenshot (163)](https://github.com/user-attachments/assets/cbc2eb0d-b9cd-419d-8d99-db68ffeacef4)
+![Screenshot (164)](https://github.com/user-attachments/assets/b3a0113b-e60c-4e25-b818-f88981343644)
+![Screenshot (165)](https://github.com/user-attachments/assets/94f72601-039c-428c-945b-179dc2458378)
+![Screenshot (166)](https://github.com/user-attachments/assets/8bd1801f-4824-4ca0-af8f-9183cd2c6adc)
